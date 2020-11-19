@@ -10,4 +10,4 @@
 LinkedIn- [Thushari Pahalage](https://www.linkedin.com/in/thushari-pahalage/)
 
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: There are many other accounts like this, but this one is mine. ENFP ftw!! 
+- ⚡ Fun fact: I listen to Lo-Fi tracks on repeat.
