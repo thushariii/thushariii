@@ -10,4 +10,4 @@
 LinkedIn- [Thushari Pahalage](https://www.linkedin.com/in/thushari-pahalage/)
 
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I listen to Lo-Fi tracks on repeat.
+- ⚡ Fun fact: I listen to Lo-Fi on repeat.
